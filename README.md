@@ -1,0 +1,2 @@
+# coinzarus
+Fuck off
